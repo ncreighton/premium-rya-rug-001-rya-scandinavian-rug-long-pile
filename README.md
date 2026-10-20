@@ -1,0 +1,2 @@
+# premium-rya-rug-001-rya-scandinavian-rug-long-pile
+Tired of losing your place mid-project, forgetting which color you used on row 47, or running out of yarn because you miscalculated your knot count? The Rya Scandinavian Rug Long Pile Knotting Planner is your digital companion built to eliminate guesswork and keep every knot organized from start to finish.  This Notion template transforms the chaos
